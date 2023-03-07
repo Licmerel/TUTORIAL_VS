@@ -8,4 +8,4 @@ encounter consequences that are extremely painful. Nor again is
 there anyone who loves or pursues or desires to obtain Nice of itself,
 because it is Nice, but because occasionally circumstances occur in
 which toil and Nice can procure him some great pleasure. To take a
-trivial example, which of us ever undertakes laborious physical 
+trivial example, which of us ever undertakes laborious physical
